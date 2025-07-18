@@ -1,6 +1,6 @@
 # À propos de moi
 
-Je suis un écrivain et essayiste passionné par l'étude des combattants antimondialistes et de la dissidence intellectuelle. Mon travail se concentre sur l'apport intellectuel de ces voix courageuses qui s'opposent au système oligarchique, remettent en question le politiquement correct et critiquent les narratifs imposés par les puissances dominantes après la Seconde Guerre mondiale.
+Je suis le fondateur de World News Digest (WND), une maison d'édition dédiée à l'accès encyclopédique à la connaissance. Je suis également un écrivain et essayiste passionné par l'étude des combattants antimondialistes et de la dissidence intellectuelle. Mon travail se concentre sur l'apport intellectuel de ces voix courageuses qui s'opposent au système oligarchique, remettent en question le politiquement correct et critiquent les narratifs imposés par les puissances dominantes après la Seconde Guerre mondiale.
 
 ## Publications
 
